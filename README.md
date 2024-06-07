@@ -1,1 +1,1 @@
-Dowaload onlu data file and setup pls )
+Download only data file and setup pls )
